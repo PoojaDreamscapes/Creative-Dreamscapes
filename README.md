@@ -4,12 +4,16 @@ My work is content writing, creative ideas, and visual design, showing how I tur
 
 ## Pooja Dreamscapes | Visual Strategist & Content Writer   
 
-Welcome to my creative hub!                                                                                                                                                                                                                                                            I turn ideas into simple, meaningful stories and eye catching visuals.                                                                                                                                               
+Welcome to my creative hub!                                                                                                                                                                                                                                                           I turn ideas into simple, meaningful stories and eye catching visuals.                                                                                                                                               
 
-## What I Do:                                                                                                                                                                                                                                                                           Visual Strategy:         Create clean, impactful designs using Canva Pro.                                                                           
+## What I Do:                                                                                                                                                                                                                                                                          
+Visual Strategy:         Create clean, impactful designs using Canva Pro.                                                                           
 
 Content Writing:         Write engaging content like The Human Advantage and The Midnight Train.                                                          
 
 Creative Storytelling:   Create aesthetic, faceless content and POV based branding.                                                                          
 
-### Connect With Me:  [View My Portfolio Here] (https://drive.google.com/file/d/1rYK8K1crAB45uo93gLcZKwA-1xaAYhB2/view)                                                                                                                                                                                                   ----------------------------------------------                                                                                                                                                                                                                                            " Making ideas into content that connects"
+### Connect With Me:  
+
+[View My Portfolio Here] (https://drive.google.com/file/d/1rYK8K1crAB45uo93gLcZKwA-1xaAYhB2/view)                                                                                                                                                                                                  
+----------------------------------------------                                                                                                                                                                                                                                            " Making ideas into content that connects"
